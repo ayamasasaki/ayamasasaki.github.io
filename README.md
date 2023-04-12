@@ -8,4 +8,4 @@ stuffs like arts and anime stuffs , but thats for future. Right now this website
 is for people who don't know much for computers and platforms that everyone use
 for gaming and a little help them. (its sound cringe and not wow but I dont what
 I have to make something with my free time like others, Im a nerd like others, 
-what can I do with my life?:D )
+what can I do with my life?:D)
